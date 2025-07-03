@@ -1,0 +1,8 @@
+# PİZZA 🍕
+**PİZZA YAPMAK İÇİN GEREKLİ MALZEMELER** 🧾
+- ✔️DOMATES
+- ✔️ PEYNİR
+- ✔️ MANTAR
+- ✖️ SUCUK
+- ✖️ ZEYTİN
+- ✔️ MISIR

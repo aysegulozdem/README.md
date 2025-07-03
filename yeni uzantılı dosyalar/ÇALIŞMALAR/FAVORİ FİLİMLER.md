@@ -1,0 +1,12 @@
+# FAVORİ FİLMLERİM
+1. **PRENS** : *ABSÜRT KOMEDİ*
+2. **AŞK TESADÜFLERİ SEVER** : *KARMAŞIK İLİŞKİLER SİLSİLESİ*
+3. **BABAM VE OĞLUM** : *KOMPLE DRAM*
+
+ |FİLM|TÜR|PUAN|
+ |---|---|---|
+|PRENS|KOMEDİ|10|
+|A.T.S|ROMANTİK|7|
+|BABAMVE OĞLUM|DRAM|7|
+---
+

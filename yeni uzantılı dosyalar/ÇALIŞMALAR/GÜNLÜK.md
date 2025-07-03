@@ -1,0 +1,10 @@
+## 02.07.2025
+ > YENİ BECERİLER ÖĞRENMEK MÜKEMMEL HİSSETTİRİYOR.
+ ### GÜNÜN PLANI;
+ - 🌤️ YENİ ŞEYLER ÖĞRENMEK İÇİN HAREKET ET.
+ - 📿 İBADET
+ - 🎆 KAHVE KEYFİ
+ - 👩‍👧‍👦 AİLE İLE VAKİT
+ - 😊 KENDİNİ DİNLE.
+
+
